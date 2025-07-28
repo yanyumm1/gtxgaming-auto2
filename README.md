@@ -1,2 +1,2 @@
 # gtxgaming-auto2
-yrusin@200038.xyz   us
+yrusin@200038.xyz   eu
